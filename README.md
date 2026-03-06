@@ -1,4 +1,4 @@
-# 🌟 [GAME TẾT] TRẢI NGHIỆM GAME TẾT  
+# 🌟 GAME TẾT 2026
 ## **“ESCAPE MOM - LÌ XÌ ĐÂU RỒI?”** 🌟
 
 Hòa chung không khí rộn ràng của **Tết Bính Ngọ 2026**, CLB Tin học chính thức ra mắt phiên bản hoàn chỉnh của trò chơi sau quá trình hoàn thiện gameplay, khắc phục các lỗi hệ thống và cập nhật thêm bộ trang phục mang đậm sắc xuân ngày Tết.
